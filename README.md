@@ -1,5 +1,9 @@
 # 📚 Librarian: Tidy Up the Arcane Library – for PC (Windows)
 
+
+<img width="1920" height="1080" alt="ss_dfa6f20575bdc163437dfe3cc403fad645a07cf6 1920x1080" src="https://github.com/user-attachments/assets/e2740dff-4e67-4a8d-9ac0-beeec145ea82" />
+
+
 **Librarian: Tidy Up the Arcane Library** is a charming fantasy puzzle and organization game where every shelf, enchanted book, and magical artifact has its rightful place. Step into the role of an arcane librarian tasked with restoring order to a mysterious library filled with ancient tomes, mystical relics, and forgotten secrets. Combining relaxing gameplay, clever organization mechanics, and a beautifully crafted magical atmosphere, this unique indie experience offers hours of immersive entertainment for players who enjoy cozy puzzle games and fantasy adventures.
 
 Designed for both casual and experienced gamers, **Librarian: Tidy Up the Arcane Library** delivers satisfying sorting mechanics, detailed environments, enchanting visual effects, and a peaceful soundtrack that transforms every session into a relaxing adventure. Explore hidden corners of the magical library, organize countless enchanted objects, unlock new rooms, and uncover the mysteries buried within one of the most fascinating fantasy libraries ever created.
